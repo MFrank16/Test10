@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Martin Frank
-2.
+2. Matúš Bystrický
 3.
 4.
