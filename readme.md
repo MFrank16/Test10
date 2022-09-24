@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Martin Frank
 2. Matúš Bystrický
 3. Matúš Kočalka
-4.
+4. Peter Briedoň
